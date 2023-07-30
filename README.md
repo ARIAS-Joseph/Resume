@@ -1,28 +1,3 @@
-La pièce jointe CV ARIAS Joseph.pdf a été ajoutée.
-Conversation ouverte. 1 message non lu.
-
-Aller au contenu
-Utiliser Gmail avec un lecteur d'écran
-2 sur 3 479
-A mettre dans RESUME de GITHUB
-Boîte de réception
-Frederic ARIAS
-	
-Pièces jointes17:29 (il y a 1 heure)
-	
-À moi
-   
-Traduire le message
-Désactiver pour : anglais
-
-
--- 
------
-ARIAS Frédéric
-http://fr.linkedin.com/in/ariasfrederic
- 1 pièce jointe  • Analyse effectuée par Gmail
-	
-
 # Etudiant en double Licence : Informatique - Biologie .
 
 **Etudiant en double licence Informatique & Biologie à l'université Paris-Saclay**. Je suis passionnée par la génétique, l'informatique, la biostatistique et la bio-informatique. 
