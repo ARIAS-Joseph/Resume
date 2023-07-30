@@ -26,7 +26,7 @@ Stage de 3ème au parlement européen : Stage d'une semaine au parlement europé
 
 ## Certificats 
 
-### Pyton 
+### Python 
 
 [PCEP – Certified Entry-Level Python Programmer](https://verify.openedg.org/?id=vJ6a.GqQb.LFqa) en *juillet 2023*. 
 
@@ -40,6 +40,3 @@ Baccalauréat avec mention très bien.
 ### Cerificat Cervantes niveau C1 (juin 2021)
 
 Certificat de l'instiuto Cervantes attestant d'un niveau C1 en Espagnol.
-
-README.md
-Affichage de README.md en cours...
