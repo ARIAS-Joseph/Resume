@@ -40,3 +40,17 @@ Baccalauréat avec mention très bien.
 ### Cerificat Cervantes niveau C1 (juin 2021)
 
 Certificat de l'instiuto Cervantes attestant d'un niveau C1 en Espagnol.
+
+## Loisirs :
+
+- Courses (dernière course : Paris - Versailles ).
+
+- Montagne : Randonnées, Ski Alpin : flèche de bronze ESF , Surf, Canyoning.
+
+- Plongées : niveau 1 de la FFESSM depuis 2017.
+
+- Voile : niveau 2 de la FFV.
+
+- Musique : formation Niveau C2.3A en solfégre et C2.1A en Cor d'harmonie.
+
+- Tennis, Padel.
